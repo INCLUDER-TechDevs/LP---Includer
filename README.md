@@ -1,2 +1,2 @@
-Bienvenido otra vez! :D
+Bienvenido, otra vez, estimado usuario! :D
 INCLUDER
